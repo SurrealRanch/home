@@ -3,4 +3,4 @@ home
 
 Home on the range
 
-This is the place wherw the Buffalo roam and the patty flakes are blowin in the wind.
+This is the place where the Buffalo roam and the chips are blowin in the wind.
